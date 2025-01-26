@@ -1,1 +1,1 @@
-Hello, pidor gnoyni
+qwerty
